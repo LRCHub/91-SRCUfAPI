@@ -1,4 +1,4 @@
-# Radwimps – HINOMARU
+# RADWIMPS – HINOMARU
 
 > **歌詞登録ステータス：同期歌詞あり**
 
